@@ -1,9 +1,4 @@
-Here's a classic, professional, and decorative privacy policy that stands out:
-
-
----
-
-🔒 Privacy Policy – C U T E  M A R K H O R.
+****🔒 Privacy Policy – C U T E  M A R K H O R.****
 
 Welcome to CUTE MARKHOR, where your privacy and security matter. Please read our policy carefully to understand how we handle data.
 
